@@ -64,3 +64,11 @@ You apply unbending will.
 You deploy all cunning.
 Above all,
 you deceive.
+Generalized to "continued or sustained aggressive operations for the accomplishment of some purpose" (1790); in U.S., especially "political activity before an election, marked by organized action in influencing the voters" [DAE], attested from 1809.
+
+1640s, "operation of an army in the field," during a single season, in a particular region, or in a definite enterprise; from French campagne "campaign," literally "open country," from Old French champagne "countryside, open country" (suited to military maneuvers), from Late Latin campania "level country"
+
+A single season is 120 months a campaign for the  total control of the mind and the shaping of the social MINDSET, a mind set is a memetic engineering tool MINDSET  are a set of memes that are used in heavy rotation in conjuction with  all media  sources in heavy rotation JG
+
+
+
